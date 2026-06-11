@@ -1,4 +1,4 @@
-# sms-activate review: DaisySMS Login Tested — Low-Cost Activations Under Real Workload
+# [sms-activate review: DaisySMS Login Tested — Low-Cost Activations Under Real Workload](https://sms-man.com/?ref=nima)
 
 ---
 
